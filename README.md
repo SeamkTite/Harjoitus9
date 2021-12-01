@@ -9,9 +9,6 @@ Matin muutos
 Tepon muutos
 
 gdghdrhg
-r
-rt
-r
 gtsrg
 Masan muutos
 
