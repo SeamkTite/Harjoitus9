@@ -14,4 +14,5 @@ rt
 r
 gtsrg
 Masan muutos
+d
 
